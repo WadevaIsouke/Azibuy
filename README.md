@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Azibuy
+- 👋 Hi, I’m @rdrAzad
 - 👀 I’m interested in Systems
 - 🌱 I’m currently learning engineering
 - 📫 How to reach me Aziboy12@hotmail.com
